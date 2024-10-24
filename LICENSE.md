@@ -1,2 +1,2 @@
 [](https://github.com/Ericexchanger/bnb)
-https://x.com/InvestorErk?s=09
+([[https://creativecommons.org/licenses/by/4.0](https://creativecommons.org/licenses/by/4.0/)
